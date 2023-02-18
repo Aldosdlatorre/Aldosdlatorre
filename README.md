@@ -18,4 +18,4 @@
 ![GitHub](https://img.shields.io/badge/-GitHub-333333?style=flat&logo=github)
 
 
-> ***Me encanta conocer nuevas personas y hacer amigos. así que si quieres saludarme, me encantaría conocerte más!😊***
+> ***Me encanta conocer nuevas personas y hacer amigos. así que si quieres saludarme, me encantaría conocerte mejor!😊***
