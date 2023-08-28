@@ -3,7 +3,7 @@
 
 ### Soy Aldo :)
 
-- Estudiante de la carrera Ingeniería En Informática 
+- Estudiante de la carrera Desarollo de Sistemas Web
 - 🌱 Actualmente viviendo en Guadalajara, Jalisco.
 - ⭐ Amante de la tecnología y los videojuegos 🎮
 
